@@ -6,9 +6,9 @@ Mi nombre es Mariuxi Alexandra Valdez Cuenca, tengo 19 años y actualmente estoy
                                                
                                                INSTRUCCIÓN ACADÉMICA
                                                
-- Primaria: Unidad Educativa San Juan Bautista "La Salle Loja", Escuela Matilde Hidalgo De Procel y Escuela "Alonso de Mercadillo.
+- Primaria: Unidad Educativa San Juan Bautista "La Salle Loja"(1.º de básica hasta mitad de año de 3.º de básica), Escuela Matilde Hidalgo De Procel (Resto de 3.º y 4.º de básica) y Escuela "Alonso de Mercadillo (5.º de hasta 7.º de básica).
 
-- Secundaria: Unidad Educativa del Milenio Bernardo Valdivieso.
+- Secundaria: Unidad Educativa del Milenio Bernardo Valdivieso (8.º de básica hasta 3.º de bachillerato).
 
 - Superior: Cursando el segundo ciclo de la carrera de Ingeniería en Ciencias de la Computación en la Universidad Nacional de Loja (UNL).
 
