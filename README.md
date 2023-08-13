@@ -2,7 +2,7 @@
 
 
 ### *¡Hola! Conoce un poco de mí* 👋
-Mi nombre es Mariuxi Alexandra Valdez Cuenca, tengo 19 años y actualmente estoy estudiando la carrera de Ingeniería en Ciencias de la Computación en la Universidad Nacional de Loja. Espero adquirir los conocimientos necesarios a lo largo de la carrera para que cuando me gradúe y obtenga mi título profesional, poder insertarme con facilidad y eficiencia en el competitivo e innovador campo laborar que se relaciona a fin con mi carrera, ya que conforme va pasando el tiempo, va teniendo cambios a gran escala.
+Mi nombre es Mariuxi Alexandra Valdez Cuenca, tengo 19 años y actualmente estoy estudiando la carrera de Ingeniería en Ciencias de la Computación en la Universidad Nacional de Loja. Espero adquirir los conocimientos necesarios a lo largo de la carrera para que cuando me gradúe y obtenga mi título profesional, poder insertarme con facilidad y eficiencia en el competitivo e innovador campo laborar que se relaciona con mi carrera, ya que conforme va pasando el tiempo, va teniendo cambios a gran escala.
                                                
                                                INSTRUCCIÓN ACADÉMICA
                                                
